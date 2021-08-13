@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Thymeiee
+- 👀 I’m interested in dreasmp :))
+- 🌱 I’m currently learning nothing-
+- 💞️ I’m looking to collaborate on funneh & krew or dsmp!
+- 📫 How to reach me idk discord-?
